@@ -26,8 +26,40 @@ Receitas de comida mesmo
 
 ## Brownie 
 
+* 200g de chocolate amargo
+* 200g de manteiga (sem sal)
+* 2 ovos
+* 1 xícara de açucar refinado
+* 2/3 xícara de farinha de trigo
+* 1/2 xícara de castanha-do-pará (ou nozes)
+* 1 pitada de sal (se a manteiga for sem sal)
+
+1. Picar o chocolate em pedaços e a manteira em cubos
+2. Derreter o chocolate e manteiga em banho maria
+3. Quebre os olhos e bata levemente
+4. Pique grosseiramente as castanhas
+5. Misture o açucar com o chocolate derretido
+6. Acrescente os ovos no chocolate não tão quente e misture bem
+7. Misture as castanhas
+8. Transfira a massa para a forma e leve ao forno pre-aquecido a 180' e deixe por 20 minutos ou mais
+
 ## Bolinho de Frango
+* Frango desfiado
+* Aveia em flocos
 
 ## Risotto
+* 1 copo de arroz arboreo pra cada pessoa
+* 1/2 cebola
+* Manteiga
+* Vinho branco suave
+* 100g de parmesão
+* Caldo de legumes
+* Azeite
 
 ## Yakisoba
+* Macarrão pra yakisoba
+* 1/2 cebola
+* Molho shoyo
+* Caldo de legumes
+* Legumes (cebola, brocolis, repolho, pimentão)
+* Carne, frango ou cogumelos
