@@ -63,3 +63,49 @@ Receitas de comida mesmo
 * Caldo de legumes
 * Legumes (cebola, brocolis, repolho, pimentão)
 * Carne, frango ou cogumelos
+
+## Spaghetti Carbonara
+> Essa é a receita tradicional de Spaghetti Carbonara, originalmente feita em Roma na Italia.
+Alguns ingredientes por serem mais difíceis de se achar aqui no Brasil, principalmente no Nordeste onde moro atualmente, foram adicionadas algumas sugestões de substituição. 
+
+* Spaghetti (Massa sem ovos). 150g por porção.
+* Guanciale (Bochecha de porco curada) pode ser subistituida por Pancetta. Mas nunca usar Bacon, não existe sabor defumado na receita tradicional. 50g por porção.
+* Queijo Pecorino ralado na hora da receita. 100g a 120g por porção.
+* Ovo. 1 gema + 1 inteiro por porção. Nunca usar creme de leite na receita.
+* Pimenta do Reino Preta. Moida na Hora. 
+* Sal preferencialmente grosso. 10g por 1L de água.
+* Água.
+
+**Modo de preparo na ordem para iniciantes**
+
+**Preparo do Pasta de Ovos:**
+1. Quebre os ovos em uma tigela. Bata-os vigorosamente mas sem intenção de arear os ovos. O objetivo é apenas incorporar a gema a clara.
+2. Rale o queijo e adicione na tigela com os ovos. 
+3. Adicione Pimenta do Reino moida na hora.
+4. O objetivo dessa etapa ao final é ter algo que lembra uma pasta, o quejo deve estar bem misturado aos ovos.
+
+**Preparo do Guanciale:**
+1. Corte o guanciale em cubos pequenos.
+2. Coloque em uma frigideira relativemente grande. (Deve ser suficiente para suportar a quantidade de massa cozida).
+3. Frite até que os cubos fiquem dourados e crocantes.
+4. Retire o guanciale da frigideira e rezerve.
+
+**Cozimento da Massa:**
+1. Coloque água numa panela alta. A quantidade de macarrão deve ser coberta com folga. A Massa deve nadar livremente na água.
+2. Adicione Sal a água. A quantidade deve ser suficiente para o sabor da água lembrar a água do mar.
+3. Espere a agua entrar em fevor. Deve-se tampar a panela para que haja convecção no liquido da água.
+4. Quando Fervida adicione o spaghetti a panela e espere o tempo sugerido na embalagem. Sugiro talvez deixar 1min a menos do tempo para o spaghetti ficar ao ponto correto.
+5. Não escorra a água.
+6. O Objetivo dessa etapa já é tirar o macarrão direto da panela para a frigideira.
+
+**Preparo Final:**
+1. Na mesma frigideira de fritar o guanciale, retire o excesso de óleo resultante da fritura do mesmo. Só escorrer.
+2. Caso a frigideira esteja fria, aqueça-a um pouco. Mas não deve estar muito quente.
+3. Adicione o Guanciale a frigideira(já frito) e adicione a massa já cozida. 
+4. É ideal que junto com a massa, um pouco, bem pouco, da água do cozimento vá junto pois ela tem bastante amido e irá ajudar na próxima etapa.
+5. Refogue a massa e a agua por uns 30s e deixe a água do cozimento reduzir ainda mais na frigideira.
+6. A frigideira deve estar quente, desligue o fogão e adicione a Pasta de Ovos previamente preparada.
+7. Agora vc deve emulsionar os ovos com o queijo e com a água do cozimento. Essa tarefa é bem dificil e deve ser feita com o fogo desligado. Deve-se misturar bem os ingredientes na frigideira com a massa cozida.
+8. Caso precise pode-se colocar a frigideira em cima da panela em que foi cozida o macarrão. Pois provavelmente estará quente e o vapor da água ajudará no processo.
+9. Ao final vc deve chegar a um resultado onde a pasta de ovos deve se ter juntado a massa. Resultado assim no Carbonara Tradicional Romano.
+10. Pode-se para finalizar no prato, ralar um pouco a mais de pecorino(cuidado pois o queijo é salgado) e mais pimenta do reino.
