@@ -62,7 +62,7 @@ Receitas de comida mesmo
 * 1/2 cebola
 * Molho shoyo
 * Caldo de legumes
-* Legumes (cebola, brocolis, repolho, pimentão)
+* Legumes (cebola, cenoura, brocolis, repolho, pimentão)
 * Carne, frango ou cogumelos
 
 1. Pique bem todos os legumes, exceto o brócolis
