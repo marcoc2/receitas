@@ -28,7 +28,7 @@ Receitas de comida mesmo
 
 * 200g de chocolate amargo
 * 200g de manteiga (sem sal)
-* 2 ovos
+* 3 ovos
 * 1 xícara de açucar refinado
 * 2/3 xícara de farinha de trigo
 * 1/2 xícara de castanha-do-pará (ou nozes)
