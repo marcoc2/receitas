@@ -73,3 +73,25 @@ Receitas de comida mesmo
 6. Adicione os legumes ao refogado
 7. Adicione a mistura de shoyo com caldo de legumes e mexa bem
 8. Misture o macarrão ao resto dos ingredientes
+
+
+## Macarrão com Ervilha e Bacon
+* 300g de macarrão em formato de concha (tipo conchigliette)
+* sal e pimenta do reino moída na hora
+* 150g de ervilhas congeladas
+* 2 colheres de sopa de azeite
+* 200g de bacon
+* 2 colheres de sopa de manteiga
+* 2 dentes de alho, amassados
+* 50g de queijo parmesão ralado (mais extra para servir)
+
+1. Cozinhe o macarrão com água salgada
+2. Um minuto ou dois antes de terminar, jogue as ervilhas junto ao macarrão
+3. Escorra, reservando um pouco da água, e retorne à panela junto com a água reservada
+4. Enquanto isso, esquente o azeite em uma frigideira grande
+5. Cozinhe o bacon por 3-5 min em fogo médio até ficar crocante
+6. Adicione a manteiga e o alho e cozinhe por mais um minuto
+7. Remova do fogo
+8. Jogue o bacon com alho no macarrão com ervilhas
+9. Coloque queijo parmesão
+10. Tempere bem e sirva junto com o parmesão extra
