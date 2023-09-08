@@ -52,7 +52,7 @@ Receitas de comida mesmo
 * 1 copo de arroz arboreo pra cada pessoa
 * 1/2 cebola
 * Manteiga
-* Vinho branco suave
+* Vinho branco seco
 * 100g de parmesão
 * Caldo de legumes
 * Azeite
